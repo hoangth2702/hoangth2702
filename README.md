@@ -1,5 +1,5 @@
 - 👋 Hi, I’m  NGUYỄN ĐÌNH HOÀNG
-- 👀 I’m interested in  ngành lập trình viee 
+- 👀 I’m interested in  ngành  lập trình
 - 🌱 I’m currently learning tại taiwan
 - 💞️ I’m looking to collaborate on  với các bạn
 - 📫 How to reach me  fb của tôi Nguyễn Đình Hoàng
